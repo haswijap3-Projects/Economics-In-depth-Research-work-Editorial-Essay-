@@ -1,4 +1,4 @@
-Visit out Editorial Essay
+Visit the Economics Research File
 
 Should Profit-Maximizing Firms be operated with strict regulations? -- (Find out through visiting the editorial essay)
  
